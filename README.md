@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @pvnchito
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning how to play Valorant
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently in secondary.
+- 💞️ I’m looking to collaborate on csgo skin designer...
 - 📫 How to reach me: Discord - pvnchito!#2021
 
 <!---
